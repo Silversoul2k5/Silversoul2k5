@@ -1,4 +1,4 @@
-# 💻 SilverSoul7's Portfolio
+# 💻 Silversoul2k5's Portfolio
 
 Hello! 👋 I'm **SilverSoul7**, a tech enthusiast, gamer, and creative artist passionate about exploring new technologies and solving problems through innovation.  
 
